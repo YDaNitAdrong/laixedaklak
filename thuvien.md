@@ -1,0 +1,1 @@
+Trang "Tài liệu" của Trường Trung Cấp Buôn Ma Thuột cung cấp các tài liệu học tập, thư viện video và bài giảng hỗ trợ sinh viên. Bạn có thể truy cập để xem chi tiết và tải về các tài liệu cần thiết cho quá trình học tập.
